@@ -1,6 +1,7 @@
 ## Ciberbullying
 
-[Image](scr="")
+![ciber](https://user-images.githubusercontent.com/7217414/88567220-928ba900-d00d-11ea-88d7-220e4427609b.jpg)
+
  Lugar que envolve e um ambiente de rede digital. O ciberbullying é prejudicado de maneira ampla.
 
 Ciberbullying está dividida em algumas partes que demonstra:
